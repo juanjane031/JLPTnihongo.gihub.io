@@ -1,1 +1,1 @@
-# JLPTnihongo.gihub.io
+# nihongo.gihub.io
